@@ -1,4 +1,4 @@
-# _Naveen's GitHub
+# _Naveen's GitHub ⭐
 
 ![GIF](https://media1.tenor.com/m/DLcMGDEDLaYAAAAd/cat-fall.gif)
 
